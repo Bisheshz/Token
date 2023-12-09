@@ -1,3 +1,3 @@
 # Token
-Get EAADY Token of Facebook 2024 through cookies
+Get EAAG TOKEN
 🕸️ BY LORD BISHESH 🕸️
